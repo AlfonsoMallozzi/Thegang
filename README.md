@@ -1,0 +1,2 @@
+# Thegang
+Para organizarnos
